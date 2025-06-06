@@ -1,2 +1,4 @@
-# Birds of Paradise
-Dome Animation
+# Sundrop Studios - Birds of Paradise
+
+Boluwatife Kolawole
+Zandile Gebuza
