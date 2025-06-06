@@ -1,4 +1,4 @@
 # Sundrop Studios - Birds of Paradise
 
-Boluwatife Kolawole
+Boluwatife Kolawole &
 Zandile Gebuza
